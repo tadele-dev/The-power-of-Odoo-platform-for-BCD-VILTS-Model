@@ -1,0 +1,1 @@
+# The-power-of-Odoo-platform-for-BCD-VILTS-Model
